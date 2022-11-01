@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Fayaz78637863
-- 👀 I’m interested in to learn new things JANGO,BOOTSTRAP
+- 👀 I’m interested in to learn new things ,BOOTSTRAP
 - 🌱 I’m currently learning as PYHTON,C,C++...
 - 💞️ I’m looking to collaborate on new events GDSC AND OTHER CLUB ACTIVITES
 - 📫 contact in instagram fayazkhan123
